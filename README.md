@@ -1,0 +1,2 @@
+# online-hackathot
+HACKATHON KAZAKHSTAN
